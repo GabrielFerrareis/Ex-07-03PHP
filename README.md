@@ -1,1 +1,1 @@
-# Gabriel Ferrareis Da Costa & Isaque Gabriel Machado
+# Gabriel Ferrareis Da Costa & Theo Eric Eggert
